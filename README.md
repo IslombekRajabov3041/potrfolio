@@ -1,0 +1,2 @@
+# potrfolio
+mening birinchi  saytim
